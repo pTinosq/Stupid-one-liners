@@ -1,0 +1,1 @@
+https://github.com/pTinosq/Stupid-one-liners
